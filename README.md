@@ -1,0 +1,1 @@
+# day-PNG-for-proxy
